@@ -1,0 +1,2 @@
+# Thegod
+Bomber khalegh sheytan 
